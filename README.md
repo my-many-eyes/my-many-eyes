@@ -7,3 +7,5 @@ you can also call me by the name of any of my cosplays or characters i like! </b
 they / fool / it / any </br>
 - ponytown account </br>
 c + h freely always! , i'm frequently offtab, sorry if i don't answer </br>
+
+<div id='rg_embed_link_13381303' class='rg_embed_link' data-song-id='13381303'>Read <a href='https://genius.com/Hatty-catty-make-it-stop-lyrics'>“MAKE IT STOP” by Hatty Catty</a> on Genius</div> <script crossorigin src='//genius.com/songs/13381303/embed.js'></script>
