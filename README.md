@@ -1,4 +1,7 @@
-![yeah](https://i.imgur.com/55WvDVu.gif)
+<p align="center">
+ <img src="https://i.imgur.com/55WvDVu.gif" alt="litany" width="100">
+</p>
+
 <p align="center">
 hi hi !! </br>
 wip and stuff, im trying things   :p </br>
