@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://i.imgur.com/55WvDVu.gif" alt="litany" width="100">
+ <img src="https://64.media.tumblr.com/d9667e4feedda5a56df98b93ba01d8d8/607505fb81e86c99-47/s100x200/a2637a6ee97efde9ce6fd6d56a7f730e5815f0d9.pnj" alt="liz" width="100">
 </p>
 
 <p align="center">
