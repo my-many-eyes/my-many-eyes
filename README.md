@@ -1,5 +1,5 @@
 <p align="center">
- <img src="https://static.wikia.nocookie.net/animal-hospital/images/3/35/Liz_last_encounter_Achievement.png/revision/latest?cb=20260726061220" alt="liz" width="100">
+ <img src="https://static.wikia.nocookie.net/animal-hospital/images/3/35/Liz_last_encounter_Achievement.png/revision/latest?cb=20260726061220" alt="liz" width="300">
 </p>
 
 <p align="center">
