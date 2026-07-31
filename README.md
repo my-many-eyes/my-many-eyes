@@ -8,6 +8,7 @@ wip and stuff, im trying things   :p </br>
  steven  ou  twitter ! </br>
 >feel free to also call me by the name of any of my cosplays or any characters i like! </br>
 they / it / fool </br>
+pleaaaaaase cuddle with me !!! please !!! >o< </br>
 - ponytown only account </br>
 c + h freely always! , i'm frequently offtab, so if you want to tell me something , whisper me ! althought i might see it late.. </br> </p>
 <p align="center">
