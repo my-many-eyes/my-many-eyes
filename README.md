@@ -5,11 +5,11 @@
 <p align="center">
 hi hi !! </br>
 wip and stuff, im trying things   :p </br>
-litany ,, katters ,, steven </br>
-you can also call me by the name of any of my cosplays or characters i like! </br>
-they / fool / it / any </br>
-- ponytown account </br>
-c + h freely always! , i'm frequently offtab, sorry if i don't answer </br> </p>
+ steven  ou  twitter ! </br>
+>feel free to also call me by the name of any of my cosplays or any characters i like! </br>
+they / it / fool </br>
+- ponytown only account </br>
+c + h freely always! , i'm frequently offtab, so if you want to tell me something , whisper me ! althought i might see it late.. </br> </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/d9667e4feedda5a56df98b93ba01d8d8/607505fb81e86c99-47/s100x200/a2637a6ee97efde9ce6fd6d56a7f730e5815f0d9.pnj" alt="liz" width="100">
 </p>
