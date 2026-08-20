@@ -10,7 +10,9 @@ wip and stuff, im trying things   :p </br>
 they / it / fool </br>
 pleaaaaaase cuddle with me !!! please !!! >o< </br>
 - ponytown only account </br>
-c + h freely always! , i'm frequently offtab, so if you want to tell me something , whisper me ! althought i might see it late.. </br> </br>
+c + h freely always! , i'm frequently offtab, so if you want to tell me something , whisper me ! althought i might see it late..</br> 
+i like watching minecraft youtubers and lifesteal videos but i didnt watch unstable universe yet dont talk to me about it i wont understand it 🥺!!!! /gen </br>
+</br>
 <a href="https://github.com/ship-town">@ship-town</a> 's moezegect shipper !!! </br> </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/d9667e4feedda5a56df98b93ba01d8d8/607505fb81e86c99-47/s100x200/a2637a6ee97efde9ce6fd6d56a7f730e5815f0d9.pnj" alt="liz" width="100"> </p> </br>
