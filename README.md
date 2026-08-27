@@ -14,10 +14,14 @@ check my pronouns.page before you try to be friends with me (or before interacti
 pleaaaaaase cuddle with me ! ! ! please ! ! ! >o< huge cudcomf . </br>
 french is my native language ! even if i am pretty fluent in english , i might make mistakes . feel free to correct me .</br>
  </br> 
+ ✦ 
+</br>
 </br>
  i am very shy and awkward . i love to make friends but i am very bad at making the first step/interaction , so sorry ! . X( 
 </br> even so , feel free to talk to me or interact with me ! talk to me about fandoms we have in common or anything really , i love listening ^u^ ! ! ! ! ! ! ! 
 </br>
+</br>
+ ✦ 
 </br>
 </br>
 i'm frequently offtab, so if you want to tell me something , whisper me ! althought i might see it late . .</br> 
