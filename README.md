@@ -11,7 +11,7 @@
 <p align="center"> call me steven ou twitter ! ! ! </br>
 > feel free to also call me by the name of any of my cosplays or any characters i like , it would make me happy . ^_^ </br>
 check my pronouns.page before you try to be friends with me (or before interacting) !</br>
-pleaaaaaase cuddle with me ! ! ! please ! ! ! >o< huge cudcomf . </br>
+pleaaaaaase cuddle with me ! ! ! please ! ! ! >o< huge cudcomf . feel free to match with me ! ! </br> interactions are enc at all time , if i dont answer , i am offtab , whisper me !</br>
 french is my native language ! even if i am pretty fluent in english , i might make mistakes . feel free to correct me .</br>
  </br> 
  ✦ 
